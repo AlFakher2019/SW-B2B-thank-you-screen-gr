@@ -1,0 +1,1 @@
+# SW-B2B-thank-you-screen-gr
